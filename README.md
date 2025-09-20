@@ -1,5 +1,5 @@
 # 💫 About Me:
-Software Engineering student | ETS | MTL
+Software Engineering Graduate | ETS | MTL
 
 
 ## 🌐 Socials:
